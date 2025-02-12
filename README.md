@@ -30,7 +30,7 @@ Forget complicated apps! **Xpress TOOLER BETA** brings **all essential tools in 
 ---
 
 ## 📥 DOWNLOAD NOW!
-📲 **Direct APK Download:** [🔗 Click Here](https://www.webintoapp.com/store/607989)  
+📲 **Direct APK Download:** [🔗 Click Here](https://www.mediafire.com/file/ughb8ugshkragdz/Xpress+Tooler.apk/file)  
 🌍 **Visit Official Website:** [🌐 Click Here](https://xpresstoolerbeta.tiiny.site/)  
 
 > ⚡ **Experience the power of the best tooling app!**  
