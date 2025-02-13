@@ -1,4 +1,4 @@
-# 🚀 XPRESS TOOLER BETA – THE ULTIMATE TOOLING APP 🔥
+# 🚀 XPRESS TOOLER  – THE ULTIMATE TOOLING APP 🔥
 
 ![Xpress TOOLER Logo](https://i.postimg.cc/DzcrxFYp/Untitled-design-3.png)
 
