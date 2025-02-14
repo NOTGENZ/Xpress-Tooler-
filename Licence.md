@@ -1,6 +1,6 @@
-# 📜 LICENSE - XPRESS TOOLER BETA 🚀
+# 📜 LICENSE - XPRESS TOOLER 🚀
 
-Xpress TOOLER BETA is **free to use** for everyone! You can enjoy all its features without any restrictions. However, we have some simple guidelines to follow:
+Xpress TOOLER  is **free to use** for everyone! You can enjoy all its features without any restrictions. However, we have some simple guidelines to follow:
 
 ## ✅ What You Can Do:
 - ✔ Use the app freely for personal or professional purposes  
